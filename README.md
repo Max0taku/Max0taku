@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Twitch or my professional project 
 - 📫 How to reach me ? On Instagram or Discord
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: In this world magic doesn't exists so..... GO TO WORK
+- ⚡ Fun fact: I'm working for my passion not for people
 
 <!---
 Max0taku/Max0taku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
